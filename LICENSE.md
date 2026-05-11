@@ -1,4 +1,4 @@
-
+Sketch for macOS smart Automation - layer styles and collaboration offers the most advanced Sketch for macOS automation, with layer styles and collaboration. Ideal for
 
 
 
